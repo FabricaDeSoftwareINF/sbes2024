@@ -1,1 +1,1 @@
-# sbes2024.github.io
+# SBESS 2024
